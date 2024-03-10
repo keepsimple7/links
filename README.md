@@ -1,5 +1,4 @@
 # links
 
-`https://drive.google.com/drive/folders/10m0FFfR46MUohISzeN8O95oTkY1ivluo?usp=sharing`
-`https://drive.google.com/drive/folders/1cgG0hFDqFvRZh0CvISvtYfValb2rulbY?usp=sharing`
+`https://drive.google.com/file/d/1d9sEfc1DkzGJ1mJ--9JH9YrbKEacx1Dj/view?usp=sharing`
 
